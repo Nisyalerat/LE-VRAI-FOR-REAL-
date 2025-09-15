@@ -8,7 +8,7 @@
 - **2023 :** Baccalauréat général (spécialités HGGSP et Cinéma audio-visuel).
 
 ## Expériences professionnelles
-- **2024 (7 semaines) – Stage chez [Astro Magazine](https://www.instagram.com/astromagazine_/), Toulouse :**  
+- **2025 (8 semaines) – Stage chez [Astro Magazine](https://www.instagram.com/astromagazine_/), Toulouse :**  
   - Réalisation de vidéos courtes sur le rap (1 à 3 minutes).  
   - Travail de rédaction journalistique et veille sur les réseaux sociaux.  
   - Graphisme (Photoshop), montage vidéo (Premiere Pro, After Effects).  
